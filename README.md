@@ -1,2 +1,0 @@
-5610110467
-worrachot satienwongnusar
